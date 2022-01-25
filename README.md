@@ -1,0 +1,2 @@
+# version
+1 - https://freecoursesite.com/ 2 - https://www.freetutorialsus.com/ 3 - https://freecoursesite.us/ 4 - http://coursesdaddy.com/ 5 - https://coursedrive.org/ 6 - https://www.ftuudemy.com/ 7 - https://getfreecourses.co/ 8 - https://freeallcourse.com/ 9 - https://freecoursesdownload.com/ 10 - https://freetutorialonline.com/ 11 - http://freetutorialonline.com/ 12 - https://freetutorialshub.com/ 13 - https://freetutorials-us.com/   14 - https://downloadudemy.com/ 15 - https://freetutsdownload.net/
